@@ -10,4 +10,4 @@ ___
 # What will be here?
 Here will be my *homework* :page_facing_up: and *programmes* :computer:
 ___
-![](https://i.gifer.com/embedded/download/Xs64.gif)
+![](https://media.discordapp.net/attachments/553726690849718282/695544050744295474/unknown.gif)
